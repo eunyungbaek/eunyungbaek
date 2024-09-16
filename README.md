@@ -1,3 +1,4 @@
+# <p align="center"> [@purrcore](https://github.com/purrcore)
 
 Formerly Legendary tier on [ponytown's official github Tierlist](https://rentry.co/github-tierlist) Cheers to treehuggers 
 
