@@ -1,4 +1,5 @@
-# <p align="center"> [@purrcore](https://github.com/purrcore)
+# <div align="center"> [@purrcore](https://github.com/purrcore)
+
 
 Me: scrolling on twitter
 
@@ -13,4 +14,5 @@ Kayn: it's ok baby... i'm all yours.... kisses my cheek
 Be not afraid 
 ![](https://files.catbox.moe/8cgyuk.png) updated from 1/25/25 Give me my playtime back
 
-![](https://i.ibb.co/pPvB8wj/IMG-7650.webp)
+### <div align="center"> [orph](https://github.com/Ovrpheus) & [vito](https://github.com/purrcore) MY #GOATS
+<div align="center"><img src="https://i.postimg.cc/5tWtkdjw/image.webp"/>
